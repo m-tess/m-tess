@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @m-tess
-- 👀 I’m interested in coding
+- 👀 I’m a computer engineer and I'm interested in coding
 - 🌱 I’m currently work in software development
 - 💞️ I’m looking to collaborate on many projects with great interest  
 - 📫 How to reach me? Use my e-mail: tessa.aurelus@gmail.com
